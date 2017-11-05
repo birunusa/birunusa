@@ -1,0 +1,2 @@
+# birunusa
+latihan pertama birunusa
